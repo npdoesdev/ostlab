@@ -1,1 +1,1 @@
-ost lab 5 github studyiung session 
+ost lab 5 github studying session 
